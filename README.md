@@ -17,7 +17,7 @@ Valorant Cheat External Public / Updated / Working 19/06/2022
 * ` ALWAYS SAFE IF BANNED = FULL REFUND`
 * ` WE THINK OF YOUR SAFETY WHILE YOU CHEAT`
       
-🐵・**We have over 300+ **HAPPY** customers and over 4,5k discord members**
+😀・**We have over 300+ **HAPPY** customers and over 4,5k discord members**
    
 ***
      
