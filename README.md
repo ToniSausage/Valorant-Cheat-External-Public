@@ -22,7 +22,7 @@ DRIVER NOT INCLUDED! MAKE SELF ONE OR JOIN THE DISCORD AND CONTACT OUR TEAM
 * ` ALWAYS SAFE IF BANNED = FULL REFUND`
 * ` WE THINK OF YOUR SAFETY WHILE YOU CHEAT`
       
-😀・**We have over 300+ **HAPPY** customers and over 4,5k discord members**
+😀・**We have over 300+ **HAPPY** customers and over 3,5k discord members**
    
 ***
      
